@@ -1,4 +1,4 @@
-# Rules-for-competency-
+# Rules-for-competency
 
 
 ### link to persentation of rule 
